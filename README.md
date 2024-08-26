@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @AriZXnjayy
+- saya akan membuat codingan website yang ada jumpscare nya jadi tunggu aja peluncuran website jumpscare pertama kami
